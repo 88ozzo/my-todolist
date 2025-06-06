@@ -130,3 +130,81 @@ This is why the Bible calls the first woman Eve which means life and why it call
 
 As Adam is a prophetic figure of Jesus who is the male image of God, Eve is the prophetic figure of Heavenly Mother who is the female image of God.
 
+Through the prophecy about Eve, God made known to us that eternal life is given to us by our Heavenly Mother.
+
+Jesus, too, taught us this fact.
+
+Let's take a look at Jn chapter 6 verse 39. It says...
+
+_**Jn 6:39 "And this is the will of him who sent me, that I shall lose none of all those he has given me, but raise them up at the last day."**_
+
+When will Jesus raise them up? He said, "Raise them up at the last day," which means to give them life on the last day.
+
+Let's continue by looking at the next verse. It says...
+
+_**Jn 6:40 "For my Father's will is that everyone who looks to the Son and believes in him shall have eternal life, and I will raise them up at the last day."**_
+
+WHen did Jesus say He would give them life? Again, at the last day!
+
+Let's take a look at Jn chapter 6 verse 54. It says...
+
+_**Jn 6:44 "I will raise them up at the last day."**_
+
+Here, He also said He would give them life at the last day.
+
+_**Jn 6:54 "Whoever eats my flesh and drinks my blood has eternal life, and I will raise them up at the last day."**_
+
+Jesus repeated even four times that He would give them life "at the last day." As Christ, He had power to give them life at that moment.
+
+However, why did Jesus wait until the last day?
+
+It is because the Bible prophesies that spiritual life will be given to us by our spiritual Mother, who appears in the last days.
+
+God foretold His plan of salvation through the six-day Creation. The six-day Creation is a prophecy about the six-thousand-year work of redemption.
+
+By creating Eve on the sixth day, God prophesied that Heavenly Mother would appear at the end of the six-thousand-year work of redemption.
+
+According to this prophecy, Heavenly Mother appears in the last days and gives eternal life to Her children.
+
+
+### Chapter 5
+
+Let's understand further about Heavenly Mother who appears according to prophecy. Let's begin by looking at REv chapter 19 verse 7. It says...
+
+_**Rev 19:7 "Let us rejoice and be glad and give him glory! For the wedding of the Lamb has come, and his bride has made herself ready."**_
+
+The "Lamb," here, represents Jesus (Jn 1:29). In His first coming, JEsus appeared alone. However, Jesus who is prophesied here is to appear with the "Bride of the Lamb."
+
+So, this prophecy should be fulfilled at His second coming in the last days. Let's continue to examine the prophecies concerning the Bride of the Lamb who appears together with the Second Coming Christ.
+
+Let's take a look at Rev chapter 21 verse 9. It says...
+
+_**Rev 21:9-10 One of the seven angels who had the seven bowls full of the seven last plagues came and said to me, "Come, I will show you the bride, the wife of the Lamb." And he carried me away in the Spirit to a mountain great and high, and showed me the Holy City, Jerusalem, coming down out of heaven from God.**_
+
+The angel told John he would show him the Wife of the Lamb. Then, whom did the angel show him? It was Heavenly Jerusalem.
+
+Therfore, the Bride, Wife of the Lamb, whom the angel showed to John, was the Heavenly Jerusalem. Then, who is the Wife of the Lamb, the Heavenly Jerusalem, to us?
+
+Let's find out in the book of Galatians. Gal chapter 4 verse 26. It says...
+
+_**Gal 4:26 But the Jerusalem that is above is free, and she is our mother.**_
+
+It is said, "The Jerusalem that is above." "Above" refers to heaven. Who is the Heavenly Jerusalem to us?
+
+The Bible says that She is our Mother. Whom does "our" refer to? Isn't it us, God's people, who will be saved?
+
+The Bible continuously teaches us that we are children of the promise.
+
+Let's take a look at verse 31. It says...
+
+_**Gal 4:31 Therefore, brothers and sisters, we are not children of the slave woman, but of the free woman.**_
+
+What should a child call the woman who gave them life? Of course, they should call her mother.
+
+Likewise, the Bible calls the children of promise who will receive eternal life, the children of Heavenly Mother.
+
+So, if anyone wants to become a child of promise, he should become a child of Mother by having faith in Her.
+
+Those who do not believe in Heavenly Mother can neither be the children of promise nor receive eternal life. The promise of God, eternal life, is completed by our Mother.
+
+Let's absolutely believe in Heavenly Jerusalem Mother, whom the Bible testifies about, so that we can become God's children of promise receive eternal life, and enter the kingdom of heaven.
